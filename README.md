@@ -4,3 +4,4 @@
 </p>
 
 ![tumblr_3ad6335d5eb9b821d69028a5c496a681_a160402e_1280 (1)](https://github.com/user-attachments/assets/c191a05d-9fe4-4ae7-946c-a7cd967e01bf)
+> Discord is kisskaeya if you ever want to talk <3
