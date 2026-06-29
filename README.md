@@ -18,7 +18,7 @@
   <img width="2048" height="600" src="https://github.com/user-attachments/assets/03631ba5-2bc1-4c4d-8331-b4286c697f9a">
 </p>
 
-<p align="center">kaine　ₒᵣ　lucifer　　(* ^ ω ^)　　18ᵧₒ　　african american</p>
+<p align="center">kaelix　ₒᵣ　nana　　(* ^ ω ^)　　18ᵧₒ　　african american</p>
 <p align="center">audhd　　sys　　mentally disabled　　⁺</p>
 <p align="center">w2i (i get distracted easily)　　c+h freely unlesss stated otherwise</p>
 
